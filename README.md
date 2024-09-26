@@ -19,6 +19,6 @@ If you're asking for a more specific definition,
 <dl>
   <dt>Formula One</dt>
   <dd>Is the pinicle of motorsport. It has familiar car brands such as Ferrari, Mercedes, and McLaren</dd>
- --- 
+ 
 
- ## And uhh yeah these are my interest, if you have any questions DM me! 
+And uhh yeah these are my interests, for any questions DM me!
