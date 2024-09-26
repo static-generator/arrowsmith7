@@ -8,7 +8,7 @@ here are my interests
 
 I don't have my art photographed so I just draw:)
 
-- Scroll thru Social media 
+- Scroll through Social media 
 
 I have Facebook, X, and Insta. I'm not adding them here.
 
