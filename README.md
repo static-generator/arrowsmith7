@@ -5,11 +5,10 @@ Hello and welcome to my website! My name is Jan Alexa H. Brazal, I'm 14 yro and 
 
 here are my interests
 - Drawing
-I don't have my art photographed so i just draw:)
+I don't have my art photographed so I just draw:)
 
 - Scroll thru Social media 
-I have Facebook, X
-- watch Formula One, I know it's odd for a girl to watch motorsport just let me cook here.
+I have Facebook, X, and Insta. I'm not adding them here.
 
-  My fav games
-! 
+- Watch Formula One
+Idk how to exdplain it but I'm just say it anyways, fast cars go nyooom
